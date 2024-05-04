@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @fdx127
-- 👀 I’m interested in learning from others
-- 🌱 I’m currently learning data analytics
+- 👀 I’m interested in learning new things fom others
+- 🌱 I’m currently learning data analytics through Merit America
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me, email: fdx127@gmail.com | LinkedIn: https://www.linkedin.com/in/fdevilia/
 - 😄 Pronouns: she/her/they/them
